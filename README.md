@@ -1,0 +1,1 @@
+# Caracterizacion_camara_vigilancia
